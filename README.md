@@ -32,7 +32,7 @@ heiliaobdy@gmail.com
 
 新地址获取方法二：
 
-https://github.com/hlbdy166
+https://github.com/hlbdy001
 
 打开此网页能快速查看最新地址
 
