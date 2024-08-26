@@ -1,10 +1,10 @@
-免翻墙入口：https://ibdy38.com
+免翻墙入口：https://bdy01.com
 
 永久入口需翻墙：https://166.run
 
 永久入口需翻墙：https://hlbdy.me
 
-App下载地址：https://e996.ubo9hvj.com
+App下载地址：(https://b69d.ceogc.net/)
 
 官方免费Q群：http://b.npawxqkyxn40.cn/s/XLzU
 
