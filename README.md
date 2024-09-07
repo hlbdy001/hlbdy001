@@ -1,4 +1,4 @@
-免翻墙入口：https://bdy01.com
+免翻墙入口：https://bdy02.com
 
 永久入口需翻墙：https://166.run
 
@@ -6,7 +6,7 @@
 
 App下载地址：(https://b69d.ceogc.net/)
 
-官方免费Q群：http://b.npawxqkyxn40.cn/s/XLzU
+官方免费Q群：https://d1bk37wcs4eiur.cloudfront.net/weixin.html
 
 ——————————————————-
 
