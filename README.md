@@ -4,7 +4,7 @@
 
 永久入口需翻墙：https://hlbdy.me
 
-App下载地址：(https://b69d.ceogc.net/)
+App下载地址：http://d027.jxgvenp.net
 
 官方免费Q群：https://d1bk37wcs4eiur.cloudfront.net/weixin.html
 
