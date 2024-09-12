@@ -1,4 +1,4 @@
-免翻墙入口：https://bdy03.com
+免翻墙入口：https://bdy04.com
 
 永久入口需翻墙：https://166.run
 
