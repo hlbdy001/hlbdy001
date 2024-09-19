@@ -1,4 +1,4 @@
-免翻墙入口：https://bdy07.com
+免翻墙入口：https://bdy08.com
 
 永久入口需翻墙：https://166.run
 
