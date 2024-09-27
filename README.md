@@ -1,4 +1,6 @@
-免翻墙入口：https://bdy08.com
+黑料不打烊最新地址（9/27更）
+
+免翻墙入口：https://bdy09.com
 
 永久入口需翻墙：https://166.run
 
@@ -10,7 +12,7 @@ App下载地址：http://d027.jxgvenp.net
 
 ——————————————————-
 
-撸友福利：https://ba.ctnjwnzu.com
+撸友福利：https://1521.zagsbdo.org
 
 官方推特：https://twitter.com/hlbdy220
 
@@ -29,12 +31,6 @@ App下载地址：http://d027.jxgvenp.net
 heiliaobdy@gmail.com
 
 发任意致邮箱会自动回复最新地址。获取地址后如打不开等问题，可截图再次回复邮箱，以便我们能第一时间了解情况，解决让料友们顺畅使用
-
-新地址获取方法二：
-
-https://github.com/hlbdy001
-
-打开此网页能快速查看最新地址
 
 ————————————————————————
 
