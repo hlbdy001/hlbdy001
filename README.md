@@ -1,12 +1,12 @@
 黑料不打烊最新地址（10/14更）
 
-免翻墙入口：https://hlbdy2.com
+免翻墙入口：https://hlbdy3.com
 
 永久入口需翻墙：https://166.run
 
 永久入口需翻墙：https://hlbdy.me
 
-App下载地址：http://d027.jxgvenp.net
+App下载地址：https://5aad.phxzctks.com
 
 官方免费Q群：http://f.wiwji52.cn/s/fSUy
 
